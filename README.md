@@ -30,7 +30,7 @@
 
 <h4>Where can I buy Ayaka script officially?</h4>
 
-- [Whatsapp](https://wa.me/+6285236226786)
+- [Whatsapp](https://wa.me/+6285974940216)
 - [Telegram](https://t.me/sazumiviki)
 
 ##
